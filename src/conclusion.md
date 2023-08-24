@@ -1,5 +1,4 @@
 
-
 Congratulations on completing "Discovering Your Unique Strengths and Talents: Unleashing Your Full Potential in Life and Work." In this chapter, we will summarize the key points presented in the book, discuss developing an action plan for discovering your unique strengths and talents, and encourage continual growth and development in life and work.
 
 Summarizing Key Points Presented in the Book
