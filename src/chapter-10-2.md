@@ -1,5 +1,3 @@
-Strategies for Developing Resilience and Persistence
-==================================================================================================
 
 Having a growth mindset and positive attitude can make all the difference when it comes to achieving success in life and work. In this chapter, we will explore strategies for cultivating resilience and persistence through mindset and attitude.
 

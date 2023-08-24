@@ -1,5 +1,3 @@
-Chapter 7: Building a Network and Finding Mentors
-=================================================
 
 In this chapter, we will explore the importance of building a network and finding mentors in unleashing your full potential in life and work.
 

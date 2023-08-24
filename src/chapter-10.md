@@ -1,5 +1,3 @@
-Chapter 10: Mindset and Attitude for Success
-============================================
 
 In this chapter, we will explore techniques for cultivating a positive mindset and attitude for personal and professional success. We will also discuss strategies for developing resilience and persistence, as well as the benefits of cultivating a positive mindset and attitude in encouraging personal growth and achievement.
 

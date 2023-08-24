@@ -1,5 +1,3 @@
-Chapter 4: Discovering Your Strengths and Talents
-=================================================
 
 In order to leverage your strengths and talents, it's important to first identify what they are. In this chapter, we will explore techniques for discovering your unique strengths and talents, strategies for utilizing assessment tools and receiving feedback, and the benefits of discovering your strengths and talents in encouraging personal and professional growth.
 

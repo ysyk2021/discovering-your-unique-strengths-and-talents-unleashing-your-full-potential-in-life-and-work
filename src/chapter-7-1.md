@@ -1,5 +1,3 @@
-Techniques for Building Relationships and Networks in Your Field
-===================================================================================================================
 
 In this chapter, we will explore techniques for building relationships and networks in your field. Whether you are starting out in your career or looking to expand your professional connections, these tips can help you build a network that supports your growth and development.
 

@@ -1,5 +1,3 @@
-Understanding the Connection between Strengths and Talents and Success
-===============================================================================================
 
 In this book, we will explore how discovering and utilizing your unique strengths and talents can help you reach your full potential in both life and work.
 

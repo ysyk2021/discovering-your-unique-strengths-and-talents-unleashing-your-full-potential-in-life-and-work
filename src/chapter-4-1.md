@@ -1,5 +1,3 @@
-Techniques for Discovering Your Unique Strengths and Talents
-===============================================================================================================
 
 In order to leverage your strengths and talents, it's important to first identify what they are. In this chapter, we will explore techniques for discovering your unique strengths and talents, as well as tools that can be used for self-assessment.
 

@@ -1,5 +1,3 @@
-Strategies for Developing Self-awareness and Emotional Intelligence
-============================================================================================================================
 
 Understanding your personality and aptitudes is a critical step towards discovering your unique strengths and talents. In this chapter, we will explore techniques for identifying your unique personality traits and aptitudes, strategies for developing self-awareness and emotional intelligence, and the benefits of understanding your personality and aptitudes in encouraging personal and professional growth.
 

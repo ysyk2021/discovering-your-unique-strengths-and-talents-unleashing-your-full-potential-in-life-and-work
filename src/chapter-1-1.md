@@ -1,5 +1,3 @@
-Defining Strengths and Talents and Their Importance in Personal and Professional Growth
-================================================================================================================
 
 In this book, we will explore the concepts of strengths and talents, and how they can be utilized to reach your full potential in both your personal and professional life.
 

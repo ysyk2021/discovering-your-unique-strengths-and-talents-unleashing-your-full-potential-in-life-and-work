@@ -1,5 +1,3 @@
-Strategies for Overcoming Fear and Resistance in Pursuing Your Passions
-=========================================================================================================================
 
 Exploring your passions and interests is an important step towards discovering your unique strengths and talents. However, fear and resistance can often hold us back from pursuing what we truly love. In this chapter, we will explore strategies for overcoming fear and resistance in pursuing your passions.
 

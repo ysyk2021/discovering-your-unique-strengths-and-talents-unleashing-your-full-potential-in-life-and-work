@@ -1,5 +1,3 @@
-Chapter 6: Navigating Career Transitions
-========================================
 
 In this chapter, we will explore techniques for navigating career transitions and change, strategies for building confidence and managing uncertainty, as well as the benefits of navigating career transitions in encouraging flexibility and adaptability.
 

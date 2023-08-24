@@ -1,5 +1,3 @@
-Strategies for Utilizing Assessment Tools and Receiving Feedback
-===================================================================================================================
 
 In this chapter, we will discuss strategies for utilizing assessment tools and receiving feedback to identify your unique strengths and talents. We will explore the different types of assessment tools available and how to effectively receive feedback from others.
 
