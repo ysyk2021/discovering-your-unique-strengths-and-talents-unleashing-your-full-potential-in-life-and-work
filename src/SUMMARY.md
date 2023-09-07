@@ -41,3 +41,4 @@
   - [The Benefits of Cultivating a Positive Mindset and Attitude in Encouraging Personal Growth and Achievement](chapter-10-3.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)
