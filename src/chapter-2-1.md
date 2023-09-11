@@ -1,5 +1,4 @@
-Chapter: Techniques for Identifying Your Unique Personality Traits and Aptitudes
-================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore techniques for identifying your unique personality traits and aptitudes. Understanding your strengths and talents is essential for unleashing your full potential in life and work. By utilizing these techniques, you can gain valuable insights into your individuality and leverage them to create a fulfilling and successful future.
 
